@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @e-wolf29 from NZ (south island)
+- 👀 I’m interested in exploring new technologies and learning about their applications in various fields.
+- 🌱 AI, Python and JavaScript amateur.
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I have a passion for photography and enjoy capturing beautiful moments in nature, t.
